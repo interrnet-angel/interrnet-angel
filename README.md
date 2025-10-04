@@ -7,7 +7,7 @@
  
   <sup> THE HYPERLASER RAILGUN, BLACKROCK MERCENARY. <sup> 
 
-![image](https://github.com/user-attachments/assets/ebd688cf-ecbd-41b4-adf3-9fd801caba27)
+![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
  <sup> they/she/he/any pronouns i do not mind ^_^ please feel free to get creative lol <sup>
