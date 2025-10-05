@@ -10,5 +10,5 @@
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
-[pronouns](https://pronouns.cc/@happystarred)            [atabook](https://happystars.atabook.org/)            [strawpage](https://happystars.strawpage.org/)
+[pronouns](https://pronouns.cc/@happystarred)            [atabook](https://happystars.atabook.org/)            [strawpage](builder-brotherss-pizza.straw.page)
  
