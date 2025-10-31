@@ -1,5 +1,7 @@
 <div align="center">
 
+  ![image](https://files.catbox.moe/d0shl2.png)
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=1000&color=35646d&center=true&width=235&lines=the+world+is+cruel+.;therefore;i+will+not+be+.)](https://git.io/typing-svg)
 
 
