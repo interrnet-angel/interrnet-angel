@@ -13,7 +13,7 @@ $\texttt{\color{#707061} ‎ hyperlaser / star }$
   
   $\texttt{\color{#557065} ‎ check prns and straw 4 more details  }$ 
  
-   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety ":<  }$ 
+   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety :‹  }$ 
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
