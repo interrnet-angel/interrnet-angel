@@ -1,15 +1,20 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=1000&color=102850&center=true&width=235&lines=the+world+is+cruel+.;therefore;i+will+not+be+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=1000&color=35646d&center=true&width=235&lines=the+world+is+cruel+.;therefore;i+will+not+be+.)](https://git.io/typing-svg)
 
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=darkblue&left_text=TARGETS%20SPOTTED)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=dimblue&left_text=TARGETS%20SPOTTED)
+  
+  $\texttt{\color{#707061} ‎ hyperlaser / star }$ 
+  
+  $\texttt{\color{#557065} ‎ check prns and straw 4 more details  }$ 
  
-  <sup> THE HYPERLASER RAILGUN, BLACKROCK MERCENARY. <sup> 
+   $\texttt{\color{#35646d} ‎ audhd , be careful around me   }$ 
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
-[pronouns](https://pronouns.cc/@happystarred)            [atabook](https://your-angel.atabook.org/)            [strawpage](https://builder-brotherss-pizza.straw.page)
+   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#707061}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#707061}  ᧔♡᧓  }$ [strawpage](https://builder-brotherss-pizza.straw.page) $\texttt{\color{#707061}  ᧔♡᧓  }$ 
+
  
 <sup> merge phighting babies <sup>
