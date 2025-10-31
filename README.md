@@ -6,12 +6,14 @@
 
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=dimblue&left_text=TARGETS%20SPOTTED)
-  
-  $\texttt{\color{#707061} ‎ hyperlaser / star }$ 
+   
+   ![image](https://files.catbox.moe/691rj3.webp)
+
+$\texttt{\color{#707061} ‎ hyperlaser / star }$ 
   
   $\texttt{\color{#557065} ‎ check prns and straw 4 more details  }$ 
  
-   $\texttt{\color{#35646d} ‎ audhd , be careful around me   }$ 
+   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety ":<  }$ 
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
@@ -19,4 +21,6 @@
    [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#707061}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#707061}  ᧔♡᧓  }$ [strawpage](https://builder-brotherss-pizza.straw.page) $\texttt{\color{#707061}  ᧔♡᧓  }$ 
 
  
-<sup> merge phighting babies <sup>
+![image](https://files.catbox.moe/7nu487.png)
+
+<sup> HOW TF DO YOUCHANGE THE LINK COLOR.. SO UGKLY..<sup>
