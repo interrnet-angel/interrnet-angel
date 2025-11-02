@@ -13,7 +13,7 @@ $\texttt{\color{#707061} ‎ hyperlaser / star }$
   
   $\texttt{\color{#557065} ‎ check prns and straw 4 more details  }$ 
  
-   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety :‹  }$ 
+   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety , iwc  }$ 
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
@@ -23,4 +23,4 @@ $\texttt{\color{#707061} ‎ hyperlaser / star }$
  
 ![image](https://files.catbox.moe/7nu487.png)
 
-<sup> HOW TF DO YOUCHANGE THE LINK COLOR.. SO UGKLY..<sup>
+<sup> HOW TF DO YOUCHANGE THE LINK COLOR.. SO FUCKING UGKLY..<sup>
