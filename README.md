@@ -15,7 +15,7 @@ $\texttt{\color{#707061} ‎ hyperlaser  }$
  
    $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety , iwc  }$ 
 
-![image](https://files.catbox.moe/q444j5.jpg)
+![image](https://files.catbox.moe/aezcx8.png)
 <div align="center"> 
 
  $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ 
