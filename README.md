@@ -9,18 +9,18 @@
    
    ![image](https://files.catbox.moe/691rj3.webp)
 
-$\texttt{\color{#707061} ‎ hyperlaser / star }$ 
+$\texttt{\color{#707061} ‎ hyperlaser  }$ 
   
-  $\texttt{\color{#557065} ‎ check prns and straw 4 more details  }$ 
+  $\texttt{\color{#557065} ‎ check prns for more details  }$ 
  
    $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety , iwc  }$ 
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
- $\texttt{\color{#707061}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#707061}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#707061}  ᧔♡᧓  }$ 
+ $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ 
 
  
 ![image](https://files.catbox.moe/7nu487.png)
 
-<sup> HOW TF DO YOUCHANGE THE LINK COLOR.. SO FUCKING UGKLY..<sup>
+
