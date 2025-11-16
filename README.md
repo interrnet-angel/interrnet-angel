@@ -1,6 +1,6 @@
 <div align="center">
 
-
+![image](https://files.catbox.moe/yo1w4t.png)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=1000&color=35646d&center=true&width=235&lines=the+world+is+cruel+.;therefore;i+will+not+be+.)](https://git.io/typing-svg)
 
@@ -15,12 +15,13 @@ $\texttt{\color{#707061} ‎ hyperlaser  }$
  
    $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety , iwc  }$ 
 
-![image](https://files.catbox.moe/aezcx8.png)
+![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
  $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ 
 
- 
-![image](https://files.catbox.moe/7nu487.png)
+
+![image](https://files.catbox.moe/odcovy.png)
 
 
+![image](https://files.catbox.moe/7xjxj9.png)
