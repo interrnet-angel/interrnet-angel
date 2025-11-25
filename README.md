@@ -18,7 +18,7 @@ $\texttt{\color{#707061} ‎ hyperlaser  }$
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
 
- $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ 
+ $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@happystarred)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ [guns.lol](https://guns.lol/seraphlaser) $\texttt{\color{#35646d}  ᧔♡᧓  }$
 
 
 ![image](https://files.catbox.moe/odcovy.png)
