@@ -2,7 +2,7 @@
 
 ![image](https://files.catbox.moe/yo1w4t.png)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=1000&color=35646d&center=true&width=235&lines=the+world+is+cruel+.;therefore;i+will+not+be+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=100&color=35646d&center=true&width=235&lines=body+the+pistol+;fire+the+pistol+)](https://git.io/typing-svg)
 
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=dimblue&left_text=TARGETS%20SPOTTED)
@@ -17,6 +17,8 @@ $\texttt{\color{#707061} ‎ hyperlaser  }$
 
 ![image](https://files.catbox.moe/q444j5.jpg)
 <div align="center"> 
+
+![image](https://files.catbox.moe/ydja1m.webp)
 
  $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@BODY-THE-PISTOL)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ [guns.lol](https://guns.lol/seraphlaser) $\texttt{\color{#35646d}  ᧔♡᧓  }$
 
