@@ -2,23 +2,23 @@
 
 ![image](https://files.catbox.moe/yo1w4t.png)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=100&color=35646d&center=true&width=235&lines=body+the+pistol+;fire+the+pistol+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=100&color=830916&center=true&width=235&lines=youre+the+reason+;i+play+this+game;im+doomed+;to+lose.)](https://git.io/typing-svg)
 
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=dimblue&left_text=TARGETS%20SPOTTED)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=darkred&left_text=trash%20.)
    
    ![image](https://files.catbox.moe/691rj3.webp)
 
-$\texttt{\color{#707061} ‎ hyperlaser  }$ 
+$\texttt{\color{#ab0e19} ‎ hyper / star  }$ 
   
-  $\texttt{\color{#557065} ‎ check prns for more details  }$ 
+  $\texttt{\color{#830916} ‎ check prns for more details  }$ 
  
-   $\texttt{\color{#35646d} ‎ diagnosed audhd and anxiety , iwc  }$ 
+   $\texttt{\color{#53062b} ‎ any pronouns, femme prefered atm  }$ 
 
-![image](https://files.catbox.moe/q444j5.jpg)
+![image](https://files.catbox.moe/tp6el2.jpg)
 <div align="center"> 
 
-![image](https://files.catbox.moe/ydja1m.webp)
+![image](https://files.catbox.moe/x067d6.jpg)
 
  $\texttt{\color{#35646d}  ᧔♡᧓  }$   [pronouns](https://pronouns.cc/@BODY-THE-PISTOL)    $\texttt{\color{#35646d}  ᧔♡᧓  }$  [atabook](https://your-angel.atabook.org/)    $\texttt{\color{#35646d}  ᧔♡᧓  }$ [guns.lol](https://guns.lol/seraphlaser) $\texttt{\color{#35646d}  ᧔♡᧓  }$
 
@@ -26,4 +26,5 @@ $\texttt{\color{#707061} ‎ hyperlaser  }$
 ![image](https://files.catbox.moe/odcovy.png)
 
 
-![image](https://files.catbox.moe/7xjxj9.png)
+![image](https://files.catbox.moe/he41r3.gif)
+
