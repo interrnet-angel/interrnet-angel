@@ -2,7 +2,7 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=100&color=830916&center=true&width=235&lines=youre+the+reason+;i+play+this+game;im+doomed+;to+lose.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=500&color=830916&center=true&width=235&lines=i+know+you+;dont+know+me;you+probably+;never+will!!;you+dont+know+why;im+crying;you+probably;+never+will!!)](https://git.io/typing-svg)
 
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=darkred&left_text=trash%20.)
